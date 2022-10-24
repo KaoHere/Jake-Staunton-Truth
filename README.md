@@ -1,1 +1,11 @@
 # Jake-Staunton-Truth
+HE
+IS
+A
+BIG
+FAT
+NIGGER
+COCK
+SUCKING
+BITCH
+BOYYYYY
